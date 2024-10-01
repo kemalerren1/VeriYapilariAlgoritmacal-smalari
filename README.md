@@ -1,0 +1,1 @@
+# VeriYapilariAlgoritmacal-smalari
